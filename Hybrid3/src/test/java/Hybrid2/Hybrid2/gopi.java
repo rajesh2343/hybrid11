@@ -1,3 +1,0 @@
-katraj
-
-sarparaj
